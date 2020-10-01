@@ -1,5 +1,5 @@
 ##
-## follow my social media
+## follow my social media :)
 ##
 ## telegram: @CiKu370
 ## facebook: https://facebook.com/putriy.kaeysha
